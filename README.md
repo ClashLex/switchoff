@@ -1,0 +1,1 @@
+an experimentation of an idea gave by a friend
